@@ -4,7 +4,7 @@
 
 ## About Me 🚀
 
-I'm a passionate **Design & Motion** with experience in **After Effects, Illustrator, Photoshop and more**. I love tackling complex problems, learning new skills, and collaborating with diverse teams to create innovative solutions.
+I'm passionate about **Design & Motion** with experience in **After Effects, Illustrator, Photoshop and more**. I love tackling complex problems, learning new skills, and collaborating with diverse teams to create innovative solutions.
 
 - 🌱 Currently learning: **how to use GitHub**!
 - 🔭 Working on: **a secret mission**
