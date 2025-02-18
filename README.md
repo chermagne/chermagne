@@ -1,6 +1,6 @@
 # Hi there, I'm Chermagne! 👋
 
-![Banner Image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSvDeIpDxvLbkQKCVfqNBPHCa9395wutVPjIA&s)
+![Banner Image](https://www.pngkey.com/png/full/34-347863_more-like-cartoon-cow-png-psd-by-denai1.png)
 
 ## About Me 🚀
 
