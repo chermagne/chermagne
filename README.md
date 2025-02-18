@@ -1,6 +1,6 @@
 # Hi there, I'm Chermagne! 👋
 
-![Banner Image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS4yjj1kXryCsi9Jja2nZRbP1i7d9JsU8zhTA&s)
+![Banner Image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSoAe-GeqJYYpHkgWROjBLKbwjJY9FfUIqYLw&s)
 
 ## About Me 🚀
 
