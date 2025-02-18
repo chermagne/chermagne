@@ -1,6 +1,6 @@
 # Hi there, I'm Chermagne! 👋
 
-![Banner Image](https://png.pngtree.com/png-clipart/20190424/ourmid/pngtree-a-little-cute-cow-is-laughing-png-image_989089.jpg)
+![Banner Image](https://static.vecteezy.com/system/resources/previews/021/276/733/non_2x/cute-cow-cow-illustration-baby-cow-animal-illustration-png.png)
 
 ## About Me 🚀
 
