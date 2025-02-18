@@ -1,6 +1,6 @@
 # Hi there, I'm Chermagne! 👋
 
-![Banner Image](https://static.vecteezy.com/system/resources/previews/021/276/733/non_2x/cute-cow-cow-illustration-baby-cow-animal-illustration-png.png)
+![Banner Image](https://banner2.cleanpng.com/20231211/zbo/transparent-cartoon-cow-black-and-white-patches-cow-ears-close-cartoon-cow-with-black-and-white-1710978722421.webp)
 
 ## About Me 🚀
 
