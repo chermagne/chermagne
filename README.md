@@ -1,6 +1,6 @@
 # Hi there, I'm Chermagne! 👋
 
-![Banner Image](https://www.pngkey.com/png/full/34-347863_more-like-cartoon-cow-png-psd-by-denai1.png|width=10)
+![Banner Image](https://www.pngkey.com/png/full/34-347863_more-like-cartoon-cow-png-psd-by-denai1.png|width=100)
 
 ## About Me 🚀
 
