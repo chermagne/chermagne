@@ -26,7 +26,7 @@ This is a **collection of some of my most hands-on motion design work** built wi
 
 This is a **advert for Unibet, where I was the VFX lead** built with **After Effects and Davinci**.
 
-## Get in Touch 📬
+## Connect 📬
 
 - **[vimeo](https://vimeo.com/redanimations)**
 - **[Instagram](https://www.instagram.com/redanimations/)**
