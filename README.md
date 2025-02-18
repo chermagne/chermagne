@@ -1,6 +1,6 @@
 # Hi there, I'm Chermagne! 👋
 
-![Banner Image](https://banner2.cleanpng.com/20231211/zbo/transparent-cartoon-cow-black-and-white-patches-cow-ears-close-cartoon-cow-with-black-and-white-1710978722421.webp)
+![Banner Image](https://www.pngkey.com/png/full/34-347863_more-like-cartoon-cow-png-psd-by-denai1.png)
 
 ## About Me 🚀
 
