@@ -1,6 +1,6 @@
 # Hi there, I'm Chermagne! 👋
 
-![Banner Image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSoAe-GeqJYYpHkgWROjBLKbwjJY9FfUIqYLw&s)
+![Banner Image](https://png.pngtree.com/png-clipart/20190424/ourmid/pngtree-a-little-cute-cow-is-laughing-png-image_989089.jpg)
 
 ## About Me 🚀
 
