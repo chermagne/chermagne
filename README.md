@@ -28,6 +28,6 @@ This is a **advert for Unibet, where I was the VFX lead** built with **After Eff
 
 ## Get in Touch 📬
 
-- **[vimeo]**(https://vimeo.com/redanimations)
-- **[Instagram]**(https://www.instagram.com/redanimations/)
-- **[LinkedIn]**(https://uk.linkedin.com/in/chermagne-barnachea)
+- [vimeo](https://vimeo.com/redanimations)
+- [Instagram](https://www.instagram.com/redanimations/)
+- [LinkedIn](https://uk.linkedin.com/in/chermagne-barnachea)
