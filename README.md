@@ -8,7 +8,7 @@ I'm passionate about **Design & Motion** with experience in **After Effects, Ill
 
 - 🌱 Currently learning: **how to use GitHub**!
 - 🔭 Working on: **a secret mission**
-- 🌍 Software: **Adobe, JavaScript, Excel...**
+- 🌍 Languages: **JavaScript, VBA, English**
 - ⚡ Fun fact: **I love... <ins>FOOD</ins>**
 
 ## My Skills 🧠
